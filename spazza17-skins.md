@@ -39,19 +39,10 @@ If you have any questions regarding the skins you can join my [Discord server](h
 ![](https://osu.ppy.sh/ss/15540783/cd01)
 
 # [Spazza17 WIP 04](https://www.dropbox.com/s/9ofxrda5xsj3l3z/Spazza17%20WIP%2004.osk?dl=0)
-![](https://osu.ppy.sh/ss/15540791/8980)
-
-# [Spazza17 {Oyasumi Punpun}](https://www.dropbox.com/s/2172ge8e68tw782/Spazza17%20%7BOyasumi%20Punpun%7D.osk?dl=0)
-![](https://osu.ppy.sh/ss/15540795/15cb)
-
-# [Spazza17 COLOURS](https://www.dropbox.com/s/ghsqdf07vz95g2i/Spazza17%20COLORS.osk?dl=0)
-![](https://osu.ppy.sh/ss/15540801/5c2f)
+![](https://drive.google.com/uc?export=view&id=1XoPGCi1_y7zq2-DN7Uby3FNcpROJRSQq)
 
 # [Spazza17 2018-12-12](https://www.dropbox.com/s/bjax8vnsulaljkg/Spazza17%202018-12-12.osk?dl=0)
-![](https://osu.ppy.sh/ss/15540807/40a8)
-
-# [Spazza17 2018-09-01](https://www.dropbox.com/s/mhkqj87rpmz4p3e/Spazza17%202018-09-01.osk?dl=0)
-![](https://osu.ppy.sh/ss/15540818/c7a3)
+![](https://drive.google.com/uc?export=view&id=1oSXUmgFeZa-SktxYuzB6_dcw9mUVbW_G)
 
 # [Spazza17 2017-06-12](https://www.dropbox.com/s/sksr6h8402qpyx1/Spazza17%202017-06-12.osk?dl=0)
 ![](https://drive.google.com/uc?export=view&id=1Z68JG7d8seuftkRsX49Gw_vJoYtfwlAc)
