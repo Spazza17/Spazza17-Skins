@@ -41,8 +41,8 @@ If you have any questions regarding the skins you can join my [Discord server](h
 # [Spazza17 2017-06-12](https://www.dropbox.com/s/sksr6h8402qpyx1/Spazza17%202017-06-12.osk?dl=0)
 ![](https://drive.google.com/uc?export=view&id=1Z68JG7d8seuftkRsX49Gw_vJoYtfwlAc)
 
-# what? you want more skins? OMEGALUL
+# What? Want more skins? OMEGALUL
 
-Follow me on twitter: https://twitter.com/spazzaneve17
+Follow me on Twitter: https://twitter.com/spazzaneve17
 
 
