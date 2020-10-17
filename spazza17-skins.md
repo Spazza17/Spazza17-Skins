@@ -54,4 +54,4 @@ If you have any questions regarding the skins you can join my [Discord server](h
 ![](https://osu.ppy.sh/ss/15540818/c7a3)
 
 # [Spazza17 2017-06-12](https://www.dropbox.com/s/sksr6h8402qpyx1/Spazza17%202017-06-12.osk?dl=0)
-![](https://drive.google.com/file/d/1Z68JG7d8seuftkRsX49Gw_vJoYtfwlAc/view?usp=sharing)
+[](https://drive.google.com/file/d/1Z68JG7d8seuftkRsX49Gw_vJoYtfwlAc/view?usp=sharing)
