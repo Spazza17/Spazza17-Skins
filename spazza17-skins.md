@@ -1,6 +1,6 @@
 # Spazza17 Skins (LAST UPDATE: )
 
-If you have any further questions about my skins you can join my [Discord server](https://discord.gg/spazza17)
+If you have any further questions about my skins you can join my [Discord server!](https://discord.gg/spazza17)
 
 # [Spazza17 Goodnight Yellow](https://www.dropbox.com/s/k0j2v836v8eusk3/Spazza17%20Goodnight%20Yellow.osk?dl=0)
 ![](https://drive.google.com/uc?export=view&id=1GXEijqL50BXP2kGBirEVQBO9ZLFpR3ew)
