@@ -2,7 +2,13 @@
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
 
-[Spazza17『NM』]
+# [Spazza17『HR』]
+
+# [Spazza17『NM』]
+
+# [Spazza17『DT 04』]
+
+# [Spazza17『DT』](https://drive.google.com/file/d/1hD1qakpCKfKH7PkKN3KJgu9LdNaUgplF/view?usp=sharing)
 
 # [Spazza17 Goodnight Yellow](https://drive.google.com/file/d/1K81py7GRVoL74EEEU1sPv2VikSLlCT_P/view?usp=sharing)
 ![](https://drive.google.com/uc?export=view&id=1GXEijqL50BXP2kGBirEVQBO9ZLFpR3ew)
