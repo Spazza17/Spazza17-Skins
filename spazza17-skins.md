@@ -3,12 +3,16 @@
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
 
 # [Spazza17『HR』](https://drive.google.com/file/d/13_lDIb9e4-dyHWHPoNrTFr_CiXgagKyW/view?usp=sharing)
+![](https://drive.google.com/file/d/1gJdR9VvZYYMkS-pguF0JMiSTAO4C_PL2/view?usp=sharing)
 
 # [Spazza17『NM』](https://drive.google.com/file/d/11ymxSI54FTlEnHK5xY-WgisjGIUDqK3K/view?usp=sharing)
+![](https://drive.google.com/file/d/17kEU0sHdPAdrYaygj1rod2qnguZgnBQs/view?usp=sharing)
 
 # [Spazza17『DT 04』](https://drive.google.com/file/d/1BZOHC37yNahGTfsGw2YHYxDRpynXJo46/view?usp=sharing)
+![](https://drive.google.com/file/d/1wKXiMIMGmXWuZmj5b2hYKL3Uu9v4aJZO/view?usp=sharing)
 
 # [Spazza17『DT』](https://drive.google.com/file/d/1hD1qakpCKfKH7PkKN3KJgu9LdNaUgplF/view?usp=sharing)
+![](https://drive.google.com/file/d/1m99-7-4Ko2QxavrbiGr30YBjlC7A_V-2/view?usp=sharing)
 
 # [Spazza17 Goodnight Yellow](https://drive.google.com/file/d/1K81py7GRVoL74EEEU1sPv2VikSLlCT_P/view?usp=sharing)
 ![](https://drive.google.com/uc?export=view&id=1GXEijqL50BXP2kGBirEVQBO9ZLFpR3ew)
