@@ -2,11 +2,11 @@
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
 
-# [Spazza17『HR』]
+# [Spazza17『HR』](https://drive.google.com/file/d/13_lDIb9e4-dyHWHPoNrTFr_CiXgagKyW/view?usp=sharing)
 
-# [Spazza17『NM』]
+# [Spazza17『NM』](https://drive.google.com/file/d/11ymxSI54FTlEnHK5xY-WgisjGIUDqK3K/view?usp=sharing)
 
-# [Spazza17『DT 04』]
+# [Spazza17『DT 04』](https://drive.google.com/file/d/1BZOHC37yNahGTfsGw2YHYxDRpynXJo46/view?usp=sharing)
 
 # [Spazza17『DT』](https://drive.google.com/file/d/1hD1qakpCKfKH7PkKN3KJgu9LdNaUgplF/view?usp=sharing)
 
