@@ -1,7 +1,6 @@
 # Spazza17 Skins (LAST UPDATE: 22/12/2021)
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
-![screenshot4013](https://user-images.githubusercontent.com/71230537/147349115-0a45c878-5aba-4f29-bce7-e1d8f4684e1a.jpg)
 
 # [Spazza17『HR』](https://drive.google.com/file/d/13_lDIb9e4-dyHWHPoNrTFr_CiXgagKyW/view?usp=sharing)
 ![](https://drive.google.com/file/d/1gJdR9VvZYYMkS-pguF0JMiSTAO4C_PL2/view?usp=sharing)
