@@ -3,16 +3,16 @@
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
 
 # [Spazza17『HR』](https://drive.google.com/file/d/13_lDIb9e4-dyHWHPoNrTFr_CiXgagKyW/view?usp=sharing)
-![](https://drive.google.com/file/d/1gJdR9VvZYYMkS-pguF0JMiSTAO4C_PL2/view?usp=sharing)
+![screenshot026](https://user-images.githubusercontent.com/71230537/147349519-149e0cf5-88e9-401b-a2c4-c6adfaa2e8f6.jpg)
 
 # [Spazza17『NM』](https://drive.google.com/file/d/11ymxSI54FTlEnHK5xY-WgisjGIUDqK3K/view?usp=sharing)
-![](https://drive.google.com/file/d/17kEU0sHdPAdrYaygj1rod2qnguZgnBQs/view?usp=sharing)
+![screenshot030](https://user-images.githubusercontent.com/71230537/147349532-205c611b-41db-41fd-8feb-f3f9fcf76b30.jpg)
 
 # [Spazza17『DT 04』](https://drive.google.com/file/d/1BZOHC37yNahGTfsGw2YHYxDRpynXJo46/view?usp=sharing)
-![](https://drive.google.com/file/d/1wKXiMIMGmXWuZmj5b2hYKL3Uu9v4aJZO/view?usp=sharing)
+![screenshot027](https://user-images.githubusercontent.com/71230537/147349541-5413d241-7b83-4dc2-8590-07cc532655f7.jpg)
 
 # [Spazza17『DT』](https://drive.google.com/file/d/1hD1qakpCKfKH7PkKN3KJgu9LdNaUgplF/view?usp=sharing)
-![](https://drive.google.com/file/d/1m99-7-4Ko2QxavrbiGr30YBjlC7A_V-2/view?usp=sharing)
+![screenshot028](https://user-images.githubusercontent.com/71230537/147349548-1733ab92-cda2-4c05-b871-e92bfff6d090.jpg)
 
 # [Spazza17 Goodnight Yellow](https://drive.google.com/file/d/1K81py7GRVoL74EEEU1sPv2VikSLlCT_P/view?usp=sharing)
 ![](https://drive.google.com/uc?export=view&id=1GXEijqL50BXP2kGBirEVQBO9ZLFpR3ew)
