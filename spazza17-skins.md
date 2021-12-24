@@ -48,10 +48,10 @@ If you have any further questions you can join my [Discord server!](https://disc
 ![](https://drive.google.com/uc?export=view&id=1XoPGCi1_y7zq2-DN7Uby3FNcpROJRSQq)
 
 # [Spazza17 2018-12-12](https://drive.google.com/file/d/1V0tyj_WCgJ5iUTD9-Py_n76mvqE3yWts/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1oSXUmgFeZa-SktxYuzB6_dcw9mUVbW_G)
+![screenshot3860](https://user-images.githubusercontent.com/71230537/147349470-3405ff2b-42b3-4a6e-88e1-704febb802d7.jpg)
 
 # [Spazza17 2017-06-12](https://drive.google.com/file/d/1qtzb9UpXjCEbmvji2IFSHxp_bNaEpTzl/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1Z68JG7d8seuftkRsX49Gw_vJoYtfwlAc)
+![screenshot3861](https://user-images.githubusercontent.com/71230537/147349445-b43440c7-b5fc-4d91-a321-97edf2bdf248.jpg)
 
 # What? Want more skins? OMEGALUL
 
