@@ -15,37 +15,37 @@ If you have any further questions you can join my [Discord server!](https://disc
 ![screenshot028](https://user-images.githubusercontent.com/71230537/147349548-1733ab92-cda2-4c05-b871-e92bfff6d090.jpg)
 
 # [Spazza17 Goodnight Yellow](https://drive.google.com/file/d/1K81py7GRVoL74EEEU1sPv2VikSLlCT_P/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1GXEijqL50BXP2kGBirEVQBO9ZLFpR3ew)
+![screenshot3873](https://user-images.githubusercontent.com/71230537/147349902-48bbd9ae-bef8-4ea6-9ce1-a96229317101.jpg)
 
 # [Spazza17 Goodnight](https://drive.google.com/file/d/1bvjYfeWfGKKMhPfD9a5KjGY_xze9l62i/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=19wysxk3OUR-QOfGs92b0PD3fUW4u8v1a)
+![screenshot3872](https://user-images.githubusercontent.com/71230537/147349893-28087bfe-19f5-4e36-8529-49d6acf09203.jpg)
 
 # [! SPAZZAPENGUIN17+PUNPUN (ORANGE)](https://drive.google.com/file/d/1Gbx6JoYLbfDTEi04ceuQcFPC6-VPFLJT/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1K-IEFidz9vNHOKtcJhDgG-MXkR_gUU6R)
+![screenshot3871](https://user-images.githubusercontent.com/71230537/147349880-3e781842-4afa-41fb-bc01-4ea0d6dd1158.jpg)
 
 # [! SPAZZAPENGUIN17+PUNPUN (WHITE)](https://drive.google.com/file/d/1V15ZmzTMhRMeEEHmtZENUVGMv-C0bQNW/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1LqP-6xUTc9n1VS0xvXowCwKiJYyliYro)
+![screenshot3870](https://user-images.githubusercontent.com/71230537/147349869-72831e04-a5f9-428c-a297-f16dec79e55b.jpg)
 
 # [Alumetorz+Spazza](https://drive.google.com/file/d/1VWK4akJGfryBWGeWaSWYfsjrWfuz7QbN/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1k8CRXd0T6LWwaKC3-1-6l1_scDZ29h_p)
+![screenshot3869](https://user-images.githubusercontent.com/71230537/147349850-44ffb64b-5b68-4259-8c59-f37148a96b58.jpg)
 
 # [Alumetorz+Spazza White](https://drive.google.com/file/d/1zJ_5D6n-eX3Zt_HIssUM5HQTowRMhTWL/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1-wlqjZ0tOGAlhALuDrXmSToqTBkZb9YB)
+![screenshot3868](https://user-images.githubusercontent.com/71230537/147349833-844d95ae-6c28-4744-809b-7bdfdc17fb84.jpg)
 
 # [Spazza17 April 2020](https://drive.google.com/file/d/1siCABVtuvFPrOjFKNX6wpso6ecgPUHcV/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1ELOYQYYDnlWBXwknOxoFRbpG-zm51bX1)
+![screenshot3870](https://user-images.githubusercontent.com/71230537/147349728-247efb92-5ecf-4bca-9235-a2febd6690a6.jpg)
 
 # [Spazza17 DECEMBER 2019](https://drive.google.com/file/d/12Nn9lBgGgnEhSx5idz2jQHS5aRlD7KrM/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1Au-UMzcMyQjU3FBGYPeWiHnNjNmRiP0A)
+![screenshot3866](https://user-images.githubusercontent.com/71230537/147349718-279dd3d6-35ee-4b47-aa9f-b286bd2416eb.jpg)
 
 # [Spazza17 RAFIS EDIT](https://drive.google.com/file/d/1bE4aVQCrvi7_ORDZM93Rq9t-Cg3QyfPI/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=11lB1_PhyLgRsoZXEslRgq0qFieqX2KNs)
+![screenshot3865](https://user-images.githubusercontent.com/71230537/147349697-754f9d80-b65a-4c1c-8d8f-05a9df568649.jpg)
 
 # [Spazza17 RELAXING 1](https://drive.google.com/file/d/1JG-H1WWveRA_8IdrTdEmtNEhS6OkSDf-/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1XzM8B2yPaM2ESvavB5QKrm85bT8baf8z)
+![screenshot3863](https://user-images.githubusercontent.com/71230537/147349688-81b8cee2-91d5-4129-8fea-8fbb694bd456.jpg)
 
 # [Spazza17 WIP 04](https://drive.google.com/file/d/1RAvvpYxAoD-px_PPY742hq9nDdFWsI6M/view?usp=sharing)
-![](https://drive.google.com/uc?export=view&id=1XoPGCi1_y7zq2-DN7Uby3FNcpROJRSQq)
+![screenshot3862](https://user-images.githubusercontent.com/71230537/147349671-e60de7c4-da29-41e8-a665-cf90a61b3147.jpg)
 
 # [Spazza17 2018-12-12](https://drive.google.com/file/d/1V0tyj_WCgJ5iUTD9-Py_n76mvqE3yWts/view?usp=sharing)
 ![screenshot3860](https://user-images.githubusercontent.com/71230537/147349470-3405ff2b-42b3-4a6e-88e1-704febb802d7.jpg)
