@@ -5,10 +5,10 @@ If you have any further questions you can join my [Discord server!](https://disc
 # [Spazza17 (Fumo Bacon)](https://drive.google.com/file/d/1UFAdS-EbO4GiPQgZS95fcA3fQfq6WYE9/view?usp=sharing)
 ![screenshot4015](https://user-images.githubusercontent.com/71230537/147388325-a1f14b4b-9cb8-48d5-86c9-8fe816fea308.jpg)
 
-# [Spazza17 (Fumo Fade)』](https://drive.google.com/file/d/1su9Mf-o4N9YRa2gn5-p1NWQoKjyWnU8N/view?usp=sharing)
+# [Spazza17 (Fumo Fade)](https://drive.google.com/file/d/1su9Mf-o4N9YRa2gn5-p1NWQoKjyWnU8N/view?usp=sharing)
 ![screenshot4016](https://user-images.githubusercontent.com/71230537/147388327-845b4100-c1b8-4a8a-b406-4752347bee09.jpg)
 
-# [Spazza17 (fumohere)』](https://drive.google.com/file/d/1fclL4qpwp6EloumSd7y5sq4Ai-P5zGRc/view?usp=sharing)
+# [Spazza17 (fumohere)](https://drive.google.com/file/d/1fclL4qpwp6EloumSd7y5sq4Ai-P5zGRc/view?usp=sharing)
 ![screenshot4017](https://user-images.githubusercontent.com/71230537/147388331-727d4715-b226-4188-aa24-bb07e4c05739.jpg)
 
 # [Spazza17『HR』](https://drive.google.com/file/d/13_lDIb9e4-dyHWHPoNrTFr_CiXgagKyW/view?usp=sharing)
