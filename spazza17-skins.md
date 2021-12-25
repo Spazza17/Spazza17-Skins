@@ -1,4 +1,4 @@
-# Spazza17 Skins (LAST UPDATE: 22/12/2021)
+# Spazza17 Skins (LAST UPDATE: 25/12/2021)
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
 
