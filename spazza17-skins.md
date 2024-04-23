@@ -2,6 +2,7 @@
 
 If you have any further questions you can join my [Discord server!](https://discord.gg/SHVTK7wuUM)
 
+
 # Taiko
 
 # [G-Tea Main Spazza](https://drive.google.com/file/d/1zi4rm0L1tiCZ_cSJth_-cWF2VDocX2KZ/view?usp=drive_link)
@@ -16,7 +17,8 @@ If you have any further questions you can join my [Discord server!](https://disc
 # [Spazza17 DondaEx](https://drive.google.com/file/d/15oeCcVrBPrnym39TT9mM9-DHpbOliGx3/view?usp=drive_link)
 ![screenshot182](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/ad9c2df8-c78d-423f-bc5e-92b96b954087)
 
-# Standard
+
+# osu! Standard
 
 # [Chitanda](https://drive.google.com/file/d/1scOR-6izZuScSj11eVWmM6XMMAxtR2Nm/view?usp=drive_link)
 ![screenshot4093](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/edda7dd1-ecd8-4601-b34d-645cd7e33e78)
