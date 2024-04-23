@@ -1,6 +1,25 @@
-# Spazza17 Skins (LAST UPDATE: 25/12/2021)
+# Spazza17 Skins (LAST UPDATE: 23/04/2024)
 
-If you have any further questions you can join my [Discord server!](https://discord.gg/spazza17)
+If you have any further questions you can join my [Discord server!](https://discord.gg/SHVTK7wuUM)
+
+# Taiko
+
+# [G-Tea Main Spazza](https://drive.google.com/file/d/1zi4rm0L1tiCZ_cSJth_-cWF2VDocX2KZ/view?usp=drive_link)
+![screenshot184](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/7c4089bb-72d7-4260-9c21-43cdf9345fd1)
+
+# [G-Tea Main Spazza NF (No Finishers)](https://drive.google.com/file/d/1gYfhZx35y9zY8vjzDYQPl0zvJs6VnpG_/view?usp=drive_link)
+![screenshot185](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/71d3a396-5a8a-443c-936f-7cc518cdb0cc)
+
+# [Spazza17 DondaEx WoB](https://drive.google.com/file/d/17MLlU7vAH12Ct4C_h-BL_E-GvFi9nSki/view?usp=drive_link)
+![screenshot183](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/8e8e8a09-ff4a-4a97-b502-f8668c7d7125)
+
+# [Spazza17 DondaEx](https://drive.google.com/file/d/15oeCcVrBPrnym39TT9mM9-DHpbOliGx3/view?usp=drive_link)
+![screenshot182](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/ad9c2df8-c78d-423f-bc5e-92b96b954087)
+
+# Standard
+
+# [Chitanda](https://drive.google.com/file/d/1scOR-6izZuScSj11eVWmM6XMMAxtR2Nm/view?usp=drive_link)
+![screenshot4093](https://github.com/Spazza17/Spazza17-Skins/assets/71230537/edda7dd1-ecd8-4601-b34d-645cd7e33e78)
 
 # [Spazza17 (Fumo Bacon)](https://drive.google.com/file/d/1UFAdS-EbO4GiPQgZS95fcA3fQfq6WYE9/view?usp=sharing)
 ![screenshot4015](https://user-images.githubusercontent.com/71230537/147388325-a1f14b4b-9cb8-48d5-86c9-8fe816fea308.jpg)
